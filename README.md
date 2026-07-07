@@ -1,0 +1,1 @@
+#githup öğrenmek amaçlı yükledi
